@@ -24,6 +24,9 @@ Both A [*Silent Voice*](lim_seokhyeon.md) and Copying Beethoven center on charac
 
 [F.Chopin Piano Sonata No.2 in b flat minor op.35 mov.2](https://www.youtube.com/watch?v=zc9n2SOdksE&list=RDzc9n2SOdksE&start_radio=1)
 
+
+## 질환서사
+
 그날도 평소처럼 연습을 마치고 나오는 길이었다.
 손끝에 남은 열기, 조용히 고동치던 맥박,
 늘 그래왔듯 악기를 내려놓으려 손목을 꺾는 순간이었다.
